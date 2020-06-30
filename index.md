@@ -9,3 +9,5 @@ And who knows, maybe I will soon find my character :)
 * Long hair
 * Red hair
 * Rings on finger
+
+> My english is under all pig.
